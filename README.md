@@ -1,1 +1,1 @@
-# jintaizz.github.io
+# [jintaizz.github.io](https://hoo.be/chiguazx)
